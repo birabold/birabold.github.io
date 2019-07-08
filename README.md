@@ -21,18 +21,17 @@ Start: Freitag um 16:00 Uhr <br/>
 Ende: Sonntag um 15:00 Uhr <br/>
 Ort: Alte Schmiede, Gutshof 3, 16248 Stolzenhagen/Nationalpark Unteres Odertal <br/>
 Kosten: 195 €, zzgl. ÜVP <br/>
-Frühbucherrabatt (bis 31.3.19): 180 € <br/>
 Verpflegung (vegetarische Vollwertkost): 45 € <br/>
 Übernachtung: Matratzenlager in Alter Schmiede oder Zelt (5 €/Nacht); alternativ: Gästezimmer oder FeWos in Laufweite in Stolzenhagen. Liste der Anbieter schicken wir auf Anfrage gerne zu.
  
 ### Mentoren
-Birgit Anna Rabold & Team <br/>
-(Natur- und Wildnispädagogin, Coach)
+Birgit Anna Rabold & Team (Natur- und Wildnispädagogin, Coach) <br/>
+Ursula Reips-Ouahid (Wildnispädagogin & systemische Beratung)
  
 ### Kontakt & Anmeldung
 Die Wilde Möhre <br/>
 Wildkräuter- & Wildniswerkstatt <br/>
-Tel.: 0176-78019844 <br/>
+Tel.: [0176-78019844](tel:+4917678019844) <br/>
 Email: [info@die-wilde-moehre.de](mailto:info@die-wilde-moehre.de)
  
 Der Nationalpark Unteres Odertal ist als bedeutsames Brut-, Rast- und Überwinterunsgebiet für Vögel bekannt. Im Gegensatz zu anderen Kranich-Rastplätzen finden keine Anfütterungsmaßnahmen statt, so dass die Vögel sich über die Gegend verteilen und es den Besuchern ermöglichen, Ihnen ganz familiär - sozusagen von Du zu Du - in einer wunderschönen, abwechslungsreichen Landschaft zu begegnen.
