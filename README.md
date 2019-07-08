@@ -1,6 +1,6 @@
 # Willkommen
 
-![Flyer Titelbild](Flyer.png)
+![Kraniche im Abendrot](Flyer.png)
 
 Trompetenähnliche Rufe erschallen im September laut durch den Nationalpark Unteres Odertal. Die großen Nomaden der Lüfte versammeln sich und bereiten ihren Zug in den Süden vor. Wenn man ihren Unterhaltungen in der Abenddämmerung bis spät in die Nacht zuhört, wird die ansteckende Aufregung dieser Vögel spürbar.
 Offensichtlich haben sie sich viel zu erzählen: was sie im Sommer erlebt haben, was aus ihren Jungen geworden ist, welche Abenteuer es zu bestehen gab und natürlich die Flugroute, die vor ihnen liegt. Ihr Rufen berührt in uns Menschen oft einen alten, tief verborgenen Nomadentrieb.
